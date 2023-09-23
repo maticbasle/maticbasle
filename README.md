@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Full-time mostly self-taught graphic designer looking to work on projects that affect people worldwide.
+Full-time Quality Assurance Engineer in the Mobile Games industry who sometimes dabbles in lighter development projects on the side.
